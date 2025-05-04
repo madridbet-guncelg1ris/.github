@@ -2,11 +2,11 @@
 <p>📢 Teknik sebeplerden dolayı geçici süreyle Meritking, Kingroyal ve Madridbet markası olarak sizlere aşağıdaki linklerden hizmet sağlamaktayız.</p>
 <h2>Madridbet Giriş Adresi</h2>
 <p>
-  <a href="https://heylink.me/denemeal" title="Madridbet Giriş Adresi">🔗 Madridbet Giriş İçin Hemen Tıklayın! 🔗</a>
+  <a href="https://heylink.me/denemeal" title="Meritking Giriş Adresi">🔗 Madridbet Giriş İçin Hemen Tıklayın! 🔗</a>
 </p>
 <p>
   <a href="https://resimlink.com/Iv2mkq4UdQL" title="ResimLink - Resim Yükle">
-    <img src="https://r.resimlink.com/Iv2mkq4UdQL.jpg" alt="Madridbet Güncel Giriş Görseli" title="Madridbet Güncel Giriş Görseli">
+    <img src="https://r.resimlink.com/Iv2mkq4UdQL.jpg" alt="Meritking Güncel Giriş Görseli" title="Meritking Güncel Giriş Görseli">
   </a>
 </p>
 <h2>Madridbet Hakkında</h2>
